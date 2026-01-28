@@ -1,0 +1,1 @@
+# sko-kouza-open
